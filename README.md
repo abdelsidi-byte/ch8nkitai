@@ -1,0 +1,2 @@
+# chinkitai
+pprtfolio ai واتمتة 
